@@ -1,0 +1,1 @@
+Please create an account of way2sms for running this programm successfully and edit the links wherever necessary.
